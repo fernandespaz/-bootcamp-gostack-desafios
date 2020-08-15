@@ -1,0 +1,4 @@
+# Terça-feira
+
+Hora de início: 19:00
+Hora de término: 21:00
